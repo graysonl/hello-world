@@ -1,4 +1,4 @@
-Hello!  :heart_eyes:
+Hello! :heart_eyes:
 
 :bowtie: [My CIS Website on UOregon.edu](http://pages.uoregon.edu/graysonl/111/)
 
